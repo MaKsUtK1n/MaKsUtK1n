@@ -1,6 +1,6 @@
 # REAL SIGMA TOP 1 GIT CODER💀
 
-[[sometext](https://i.ibb.co/bjs7HyTQ/IMG-9696.jpg)](https://t.me/anozerone)
+[![sometext](https://i.ibb.co/bjs7HyTQ/IMG-9696.jpg)](https://t.me/anozerone)
 
 ##Actually lazy piece of garbage, trying to not go in army💀
 ##My Stats
