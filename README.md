@@ -8,5 +8,5 @@ trying to not go in army💀
 
 ### English lvl - B2(Maybe C4 already)
 ### Programming.Languages - Python, JavaScript(HTML+CSS), GoLang
-### Soft Skills - VPS setting, some linux commands, https certificates
+### Soft Skills - VPS setting, some linux commands, https certificates (just wanted 3 paragraphs)
 
