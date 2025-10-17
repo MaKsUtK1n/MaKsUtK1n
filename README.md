@@ -2,7 +2,7 @@
 
 # REAL SIGMA TOP 1 GIT CODER💀
 
-## Actually lazy piece of garbage, trying to not go in army💀
+trying to not go in army💀
 
 ## My Stats
 
