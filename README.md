@@ -1,4 +1,4 @@
-[![sometext](https://i.ibb.co/bjs7HyTQ/IMG-9696.jpg)](https://t.me/anozerone)
+[![sometext](https://i.ibb.co/HfcB6fMk/image.jpg)](https://t.me/anozerone)
 
 # REAL SIGMA TOP 1 GIT CODER💀
 
