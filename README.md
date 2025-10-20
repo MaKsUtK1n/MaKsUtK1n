@@ -1,4 +1,4 @@
-[![sub to tg channel](https://i.ibb.co/HfcB6fMk/image.jpg)](https://t.me/anozercvnt)
+[![sub to tg channel](https://i.postimg.cc/xnrXLwZG/IMG-9784.jpg?dl=1)](https://t.me/anozercvnt)
 
 # REAL SIGMA TOP 1 GIT CODER💀
 
